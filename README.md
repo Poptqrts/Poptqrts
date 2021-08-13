@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Poptqrts
+- 👀 I’m interested in Deez Nutz
+- 🌱 I’m currently learning Deez Nutz
+- 💞️ I’m looking to collaborate on Sucking cock
+- 📫 How to reach me Poptarts#0001
